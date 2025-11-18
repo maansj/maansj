@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a M.Sc. Industrial Engineering & Management newgrad focusing on Data Science and AI/ML. <br><br>
+I am a M.Sc. Industrial Engineering & Management newgrad focusing on Data Science, Risk Management and AI/ML. <br><br>
 
 
 ## 🌐 Socials:
